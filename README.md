@@ -1,6 +1,6 @@
 - 👋 hola soy @SalmonxD1
 - 👀 me interesa programar
-- 🌱 soy nuevo en ewto
+- 🌱 soy nuevo en esto
 - 💞️ no colaboro con nadie
 - 📫 divertido
 - 😄 muy alegre
